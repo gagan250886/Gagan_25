@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gagan250886
+- 👋 Hi, I’m @gagan25
 - 👀 I’m interested in jobs related with IT,Operations,
 - 🌱 I’m currently learning Project Management
 - 💞️ I’m looking to collaborate on the same
